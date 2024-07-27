@@ -1,1 +1,1 @@
-# banlamaya-devam-o-seni
+# banlamaya-devam-oç-seni
